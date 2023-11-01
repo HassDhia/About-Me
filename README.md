@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @alhassan6689
+- 👋 Hi, I’m Hass
 - 👀 I’m interested in neurophsychophysiology and cyberpunk upgrades
 - 🌱 I’m currently learning the basics
 - 💞️ I’m looking to collaborate on anything that is fascinating and increases human potential
